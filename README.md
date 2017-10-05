@@ -1,5 +1,5 @@
 # hello-world
-I am feeling somewhat bored now.
-I will go to sleep now.
-
-Don't wake me.
+Not dead yet: 2017-10-05.
+I should update this once a month.
+Until, you know.
+I'm dead.
